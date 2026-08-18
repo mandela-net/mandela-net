@@ -1,4 +1,4 @@
-<img width="1500" height="550" alt="1000040014" src="https://github.com/user-attachments/assets/c6702789-024f-42c0-9373-d9ada685475c" />
+<img width="350" height="130" alt="1000040014" src="https://github.com/user-attachments/assets/c6702789-024f-42c0-9373-d9ada685475c" />
 
 ⠀⠀ **an**alog / v*h*s.⠀⠀⠀ ˘˘ ⠀ ⠀ osdd-1b *sys*
 
@@ -10,4 +10,4 @@
 
  ⠀⠀ ⠀⠀18 ⠀ ✚⠀⠀⠀**s**ocially *a*wkward
 
-<img width="1500" height="550" alt="1000040015" src="https://github.com/user-attachments/assets/96414233-6e45-46b2-86bc-42530320a4cf" />
+<img width="350" height="130" alt="1000040015" src="https://github.com/user-attachments/assets/96414233-6e45-46b2-86bc-42530320a4cf" />
