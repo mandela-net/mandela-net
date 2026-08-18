@@ -1,7 +1,10 @@
 <img width="1500" height="550" alt="1000040014" src="https://github.com/user-attachments/assets/c6702789-024f-42c0-9373-d9ada685475c" />
 
+⠀⠀ **an**alog / v*h*s.⠀⠀⠀ ˘˘ ⠀ ⠀ osdd-1b *sys*
 
-<img width="350" height="411" alt="1000040011" src="https://github.com/user-attachments/assets/bbdd0db0-c465-40ff-81f5-46eb33657238" />
+⠀ ⏝ ͝ \*⠀ . **iw**c ⠀ ⠀ n*o*n-b**i**. ⠀ ⠀ ar*o*a**ce**.⠀𓈒ᐣ
+
+<img width="350" height="410" alt="1000040011" src="https://github.com/user-attachments/assets/bbdd0db0-c465-40ff-81f5-46eb33657238" />
 
 w.i.p
 
