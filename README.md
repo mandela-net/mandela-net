@@ -1,2 +1,1 @@
-# mandela_net
-Memwomeowmeowmeomewoewmewwmewoe
+How does this work
