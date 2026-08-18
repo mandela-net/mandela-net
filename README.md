@@ -10,7 +10,7 @@
 
 <img width="350" height="410" alt="1000040011" src="https://github.com/user-attachments/assets/bbdd0db0-c465-40ff-81f5-46eb33657238" />
 
- ⠀⠀" ...and i love him like nobody else can. "
+ ⠀" ...and i love him like nobody else can. "
  
 <img width="350" height="120" alt="1000040017" src="https://github.com/user-attachments/assets/120fbc89-1c9e-49c7-a6b7-c3ae5aa6ba61" />
 
