@@ -1,5 +1,10 @@
-<img width="800" height="911" alt="1000040011" src="https://github.com/user-attachments/assets/a38fbe82-d7a4-483a-b207-c15a2e50656b" />
-<img width="1386" height="281" alt="1000040016" src="https://github.com/user-attachments/assets/6da47c01-8983-4786-ad1c-3b6e5104480b" />
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/a38fbe82-d7a4-483a-b207-c15a2e50656b" alt="toughluck graphic">
+</p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="Div">
+</p>
 
 <p align="center">ᵔ.　ཫ　18+　᎖　single　
 ‿̩̩̽‿̩͙ 　✚༏ིྀᐩ　◟ ͜ ིྀᛝ　aroace ,, non-binary　ᐩ་། ₎</p>
