@@ -4,6 +4,6 @@
 <p align="center">revamping [ will probably just use the same graphics... ]</p>
 
 <details close="">
-  <summary> <g-emoji class="g-emoji" alias="spades">♠️</g-emoji> titles ! </summary>
-<p dir="auto"><a href="https://github.com/ship-town"> @ship-town </a> - num.1 toughluck + mafioso x jim shipper !</p>
-<p dir="auto"><a href="https://github.com/pt-icon"> @pt-icon </a> - pts iconic guest 1337 yumeshipper !</p>
+  <summary> <g-emoji class="g-emoji" alias="spades">♠️</g-emoji> 𝚝𝑖𝚝𝑙𝑒𝗌 إ </summary>
+<p dir="auto"><a href="https://github.com/ship-town"> @ship-town </a> - ŋ𝚞𝑚ׅ 𝚕 𝚝𝑜𝚞𝘨𝗁𝑙𝚞𝑐𝗄 𝗌𝗁𝑖𝘱𝘱𝑒𝑟 𝚊ŋ𝚍 𝑚𝚊⨍𝑖𝑜𝗌𝑜 𝑥 𝑗𝑖𝑚 𝑐𝑟𝚊𝑐𝗄𝗌𝗁𝑖𝘱𝘱𝑒𝑟 إ</p>
+<p dir="auto"><a href="https://github.com/pt-icon"> @pt-icon </a> - 𝘱𝑜ŋỿ𝚝𝑜𝑤ŋ𝗌 𝑖𝑐𝑜ŋ𝑖𝑐 𝘨𝚞𝑒𝗌𝚝 𝚕૩૩ᜪ ỿ𝚞𝑚𝑒𝗌𝗁𝑖𝘱𝘱𝑒𝑟 إ</p>
