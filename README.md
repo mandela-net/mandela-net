@@ -2,9 +2,9 @@
 <img width="1386" height="281" alt="1000040016" src="https://github.com/user-attachments/assets/6da47c01-8983-4786-ad1c-3b6e5104480b" />
 
 <p align="center">ᵔ.　ཫ　18+　᎖　single　
-‿̩̩̽‿̩͙ 　✚༏ིྀᐩ　◟ ͜ ིྀᛝ　aroace ,, non-binary　ᐩ་། ₎
+‿̩̩̽‿̩͙ 　✚༏ིྀᐩ　◟ ͜ ིྀᛝ　aroace ,, non-binary　ᐩ་། ₎</p>
  
-˚. ꦿ˚ ◟ ͜ 　1337 ♡ㅤ✚ㅤ𓎟
+<p align="center">˚. ꦿ˚ ◟ ͜ 　1337 ♡ㅤ✚ㅤ𓎟
 ㅤ◟ ͜͜ ୨᭪݃ㅤ extremeㅤparanoia,ㅤiwcㅤ❤︎ㅤ𓈒ྐ ◞ ༙ 
 ㅤㅤㅤᛝ◞ ༙ㅤschizoph.ㅤ ͜   ̣̣  ۫　depression</p>
 
