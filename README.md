@@ -5,7 +5,10 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a38fbe82-d7a4-483a-b207-c15a2e50656b" alt="toughluck graphic" width="600">
 </p>
-
+<div align="center">
+꒰　　⊹ ۪ ̣̣　　　　𝑔ປ𝑒𝑠𝚝　⥠𝟥𝟥ገ　　　𝑚ỿ
+  ༷ ྀི　  ໋ 𓏺𓏺  ༷　　　　🎖️　　　　　　　𝚍𝑒𝚊𝑟　　　　　﹒♡𓎢۫𓎡۪
+</div>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="div" width="600">
 </p>
