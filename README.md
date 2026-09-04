@@ -2,6 +2,10 @@
 ⠀⠀⠀  ⠀⠀⠀⠀⠀⠀tysm <a href="https://github.com/ship-town">@ship-town</a> ! ^.^
 ⠀⠀⠀
 ⠀⠀⠀
+⠀⠀⠀<img width="714" height="191" alt="1000040417" src="https://github.com/user-attachments/assets/9486c0c1-ae28-4fbe-b1fa-97e906d1bc7d" />
+⠀⠀⠀  ⠀⠀⠀⠀⠀⠀tysm <a href="https://github.com/pt-icon">@pt-icon</a> ! ^.^
+⠀⠀⠀
+⠀⠀⠀
 <img width="800" height="911" alt="1000040011" src="https://github.com/user-attachments/assets/a38fbe82-d7a4-483a-b207-c15a2e50656b" />
 ⠀⠀
 revamping [ will probably just use the same graphics... ]
