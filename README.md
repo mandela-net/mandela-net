@@ -1,13 +1,13 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/d0cee16c-881f-45f9-ac22-8554c5f144ab" alt="div">
+  <img src="https://github.com/user-attachments/assets/d0cee16c-881f-45f9-ac22-8554c5f144ab" alt="div" width="600>
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a38fbe82-d7a4-483a-b207-c15a2e50656b" alt="toughluck graphic">
+  <img src="https://github.com/user-attachments/assets/a38fbe82-d7a4-483a-b207-c15a2e50656b" alt="toughluck graphic" width="600">
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="div">
+  <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="div" width="600">
 </p>
 
 <p align="center">ᵔ.　ཫ　18+　᎖　single　
@@ -18,7 +18,7 @@
 ㅤㅤㅤᛝ◞ ༙ㅤschizoph.ㅤ ͜   ̣̣  ۫　depression</p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/55605e02-950d-49a5-a8e0-e4bf00363e26" alt="div">
+  <img src="https://github.com/user-attachments/assets/55605e02-950d-49a5-a8e0-e4bf00363e26" alt="div" width="600">
 </p>
 
 <details close="">
