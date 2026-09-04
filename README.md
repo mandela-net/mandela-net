@@ -15,12 +15,9 @@
   <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="div" width="600">
 </p>
 
-<p align="center">ᵔ.　ཫ　18+　᎖　single　
-‿̩̩̽‿̩͙ 　✚༏ིྀᐩ　◟ ͜ ིྀᛝ　aroace ,, non-binary　ᐩ་། ₎</p>
+<p align="center">info here</p>
  
-<p align="center">˚. ꦿ˚ ◟ ͜ 　1337 ♡ㅤ✚ㅤ𓎟
-ㅤ◟ ͜͜ ୨᭪݃ㅤ extremeㅤparanoia,ㅤiwcㅤ❤︎ㅤ𓈒ྐ ◞ ༙ 
-ㅤㅤㅤᛝ◞ ༙ㅤschizoph.ㅤ ͜   ̣̣  ۫　depression</p>
+<p align="center">more info here... w.i.p</p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/55605e02-950d-49a5-a8e0-e4bf00363e26" alt="div" width="600">
