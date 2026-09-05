@@ -20,9 +20,10 @@
 <p align="center">𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ </p>
 
 <p align="center">𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　18+　aroace　nonbinary</p>
-<br>
+<p align="center">𝄞　　　𓏼　　◜ ͡　　　𓈒　 ݁　　　 𝄚𝅦　ㅤׁ </p>
 <p align="center">🍀 　❛　sys 𓏻 schiz　✦⠀ɞ
 sngl 𓈒 ⠀⃝🃏 g1337 yume</p>
+<p align="center">⠀ׅㅤׄ𔓕ㅤ۪ ♣️ ̫ ⠀⠀⠀⠀෭෭⠀ㅤׅㅤㅤׄ⠀⠀▬▭⠀ ㅤׁㅤ  ✦</p>
 <p align="center">𓏏𓏏⠀⠀extreme⠀paranoia𓈒⠀iwc⠀⠀♥️</p>
 
 <p align="center">
