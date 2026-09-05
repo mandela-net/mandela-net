@@ -15,7 +15,7 @@
   <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="div" width="600">
 </p>
 
-<p align="center">◜ ͡　　♦️‧̥　  𓈒 ϱ　　analog,　vhs</p>
+<p align="center">◜ ͡　　♦️‧̥　  𓈒 ϱ　　𝚊ꪀ𝚊ใℴ𝚐,　ꪜh⃨𝑠</p>
 
 <p align="center">𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ </p>
 
