@@ -19,7 +19,7 @@
 
 <p align="center">𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ </p>
 
-<p align="center">𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　18+　aroace　nonbinary</p>
+<p align="center">𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　⥠ზ⧾　𝚊᥅ℴ𝚊ᥴ𝑒　ꪀℴꪀ๖𝔦ꪀ𝚊᥅Ỿ</p>
 <p align="center">𝄞　　　𓏼　　◜ ͡　　　𓈒　 ݁　　　 𝄚𝅦　ㅤׁ </p>
 <p align="center">🍀 　❛　sys 𓏻 schiz　✦⠀ɞ
 sngl 𓈒 ⠀⃝🃏 g1337 yume</p>
