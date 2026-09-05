@@ -15,9 +15,15 @@
   <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="div" width="600">
 </p>
 
-<p align="center">info here</p>
- 
-<p align="center">more info here... w.i.p</p>
+<p align="center">◜ ͡　　♦️‧̥　  𓈒 ϱ　　analog,　vhs</p>
+
+<p align="center">𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ </p>
+
+<p align="center">𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　18+　aroace　nonbinary</p>
+<br>
+<p align="center">🍀 　❛　sys 𓏻 schiz　✦⠀ɞ
+sngl 𓈒 ⠀⃝🃏 g1337 yume</p>
+<p align="center">𓏏𓏏⠀⠀extreme⠀paranoia𓈒⠀iwc⠀⠀♥️</p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/55605e02-950d-49a5-a8e0-e4bf00363e26" alt="div" width="600">
