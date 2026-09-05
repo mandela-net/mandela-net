@@ -21,10 +21,10 @@
 
 <p align="center">𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　⥠ზ⧾　𝚊᥅ℴ𝚊ᥴ𝑒　ꪀℴꪀ๖𝔦ꪀ𝚊᥅Ỿ</p>
 <p align="center">𝄞　　　𓏼　　◜ ͡　　　𓈒　 ݁　　　 𝄚𝅦　ㅤׁ </p>
-<p align="center">🍀 　❛　sys 𓏻 schiz　✦⠀ɞ
-sngl 𓈒 ⠀⃝🃏 g1337 yume</p>
+<p align="center">🍀 　❛　𝑠Ỿ𝑠 𓏻 𝑠ᥴh⃨𝔦ʑ　✦⠀ɞ
+𝑠ꪀ𝚐ใ 𓈒 ⠀⃝🃏 𝚐⥠ɜɜ𝟽 Ỿ𝓊ꪑ𝑒</p>
 <p align="center">⠀ׅㅤׄ𔓕ㅤ۪ ♣️ ̫ ⠀⠀⠀⠀෭෭⠀ㅤׅㅤㅤׄ⠀⠀▬▭⠀ ㅤׁㅤ  ✦</p>
-<p align="center">𓏏𓏏⠀⠀extreme⠀paranoia𓈒⠀iwc⠀⠀♥️</p>
+<p align="center">𓏏𓏏⠀⠀𝑒᥊𝚝᥅𝑒ꪑ𝑒⠀𝑝𝚊᥅𝚊ꪀℴ𝔦𝚊𓈒⠀𝔦ᤐᥴ⠀⠀♥️</p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/55605e02-950d-49a5-a8e0-e4bf00363e26" alt="div" width="600">
