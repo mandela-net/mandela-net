@@ -6,25 +6,43 @@
   <img src="https://github.com/user-attachments/assets/a38fbe82-d7a4-483a-b207-c15a2e50656b" alt="toughluck graphic" width="600">
 </p>
 <p align="center">
-꒰　　⊹ ۪ ̣̣　　　　𝑔ປ𝑒𝑠𝚝　⥠𝟥𝟥ገ　　　𝑚ỿ
+${\textsf{\color{#C9C7CC}꒰　　⊹ ۪ ̣̣　　　　𝑔ປ𝑒𝑠𝚝　⥠𝟥𝟥ገ　　　𝑚ỿ}}$
 </p>
 <p align="center">
-  ༷ ྀི　  ໋ 𓏺𓏺  ༷　　　　🎖️　　　　𝚍𝑒𝚊𝑟　　　　　﹒♡𓎢۫𓎡۪
+${\textsf{\color{#C9C7CC}  ༷ ྀི　  ໋ 𓏺𓏺  ༷　　　　🎖️　　　　𝚍𝑒𝚊𝑟　　　　　﹒♡𓎢۫𓎡۪}}$
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a6f0bbdb-bc78-4eb5-b322-2c2052d98452" alt="div" width="600">
 </p>
 
-<p align="center">◜ ͡　　♦️‧̥　  𓈒 ϱ　　𝚊ꪀ𝚊ใℴ𝚐,　ꪜh⃨𝑠</p>
+<p align="center">
+  ${\textsf{\color{#C9C7CC}◜ ͡　　◆‧̥　  𓈒 ϱ　　𝚊ꪀ𝚊ใℴ𝚐,　ꪜh⃨𝑠}}$
+</p>
 
-<p align="center">𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ </p>
+<p align="center">
+${\textsf{\color{#916E90}𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ }}$
+</p>
 
-<p align="center">𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　⥠ზ⧾　𝚊᥅ℴ𝚊ᥴ𝑒　ꪀℴꪀ๖𝔦ꪀ𝚊᥅Ỿ</p>
-<p align="center">𝄞　　　𓏼　　◜ ͡　　　𓈒　 ݁　　　 𝄚𝅦　ㅤׁ </p>
-<p align="center">🍀 　❛　𝑠Ỿ𝑠 𓏻 𝑠ᥴh⃨𝔦ʑ　✦⠀ɞ
-𝑠ꪀ𝚐ใ 𓈒 ⠀⃝🃏 𝚐⥠ɜɜ𝟽 Ỿ𝓊ꪑ𝑒</p>
-<p align="center">⠀ׅㅤׄ𔓕ㅤ۪ ♣️ ̫ ⠀⠀⠀⠀෭෭⠀ㅤׅㅤㅤׄ⠀⠀▬▭⠀ ㅤׁㅤ  ✦</p>
-<p align="center">𓏏𓏏⠀⠀𝑒᥊𝚝᥅𝑒ꪑ𝑒⠀𝑝𝚊᥅𝚊ꪀℴ𝔦𝚊𓈒⠀𝔦ᤐᥴ⠀⠀♥️</p>
+<p align="center">
+${\textsf{\color{#C9C7CC}𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　⥠ზ⧾　𝚊᥅ℴ𝚊ᥴ𝑒　ꪀℴꪀ๖𝔦ꪀ𝚊᥅Ỿ}}$
+</p>
+
+<p align="center">
+${\textsf{\color{#916E90}𝄞　　　𓏼　　◜ ͡　　　𓈒　 ݁　　　 𝄚𝅦　ㅤׁ }}$
+</p>
+
+<p align="center">
+${\textsf{\color{#C9C7CC}🍀 　❛　𝑠Ỿ𝑠 𓏻 𝑠ᥴh⃨𝔦ʑ　✦⠀ɞ
+𝑠ꪀ𝚐ใ 𓈒 ⠀⃝𓏵 𝚐⥠ɜɜ𝟽 Ỿ𝓊ꪑ𝑒}}$
+</p>
+
+<p align="center">
+${\textsf{\color{#916E90}⠀ׅㅤׄ𔓕ㅤ۪ ♣︎ ̫ ⠀⠀⠀⠀෭෭⠀ㅤׅㅤㅤׄ⠀⠀▬▭⠀ ㅤׁㅤ  ✦}}$
+</p>
+
+<p align="center">
+${\textsf{\color{#C9C7CC}𓏏𓏏⠀⠀𝑒᥊𝚝᥅𝑒ꪑ𝑒⠀𝑝𝚊᥅𝚊ꪀℴ𝔦𝚊𓈒⠀𝔦ᤐᥴ⠀⠀♥︎}}$
+</p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/55605e02-950d-49a5-a8e0-e4bf00363e26" alt="div" width="600">
