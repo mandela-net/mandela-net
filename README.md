@@ -55,5 +55,5 @@ ${\textsf{\color{#C9C7CC}𓏏𓏏⠀⠀𝑒᥊𝚝᥅𝑒ꪑ𝑒⠀𝑝𝚊᥅�
 <a href="https://github.com/ship-town"> @ship-town </a>　;　ŋ𝚞𝑚ׅ 𝚕 𝚝𝑜𝚞𝘨𝗁𝑙𝚞𝑐𝗄 𝗌𝗁𝑖𝘱𝘱𝑒𝑟 𝚊ŋ𝚍 𝑚𝚊⨍𝑖𝑜𝗌𝑜 𝑥 𝑗𝑖𝑚 𝑐𝑟𝚊𝑐𝗄𝗌𝗁𝑖𝘱𝘱𝑒𝑟 إ</p>
 <a href="https://github.com/pt-icon"> @pt-icon </a>　;　𝘱𝑜ŋỿ𝚝𝑜𝑤ŋ𝗌 𝑖𝑐𝑜ŋ𝑖𝑐 𝘨𝚞𝑒𝗌𝚝 𝚕૩૩ᜪ ỿ𝚞𝑚𝑒𝗌𝗁𝑖𝘱𝘱𝑒𝑟 إ</p>
 <a href="https://github.com/kaotown"> @kaotown </a>　;　𝘱𝑜ŋỿ𝚝𝑜𝑤ŋ𝗌 𝖻𝑖𝘨𝘨𝑒𝗌𝚝 𝘨𝚞𝑒𝗌𝚝 𝚕૩૩ᜪ ⨍𝚊ŋ إ</p>
-<a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>　;　ponytowns flowery fictkin! إ</p>
+<a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>　;　𝘱𝑜ŋỿ𝚝𝑜𝑤ŋ𝗌 ⨍𝑙𝑜𝑤𝑒𝑟ỿ ⨍𝑖𝑐𝚝𝗄𝑖ŋ إ</p>
 </div>
