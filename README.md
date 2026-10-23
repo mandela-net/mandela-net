@@ -33,7 +33,7 @@ ${\textsf{\color{#916E90}𝄞　　　𓏼　　◜ ͡　　　𓈒　 ݁　　�
 
 <p align="center">
 ${\textsf{\color{#C9C7CC}🍀　　❛　𝑠Ỿ𝑠 𓏻 𝑠ᥴh⃨𝔦ʑ　✦⠀ɞ
-𝑠ꪀ𝚐ใ 𓈒 ⠀⃝𓏵}}$
+𝚝𝚊𝗄𝑒ŋ 𓈒 ⠀⃝𓏵}}$
 </p>
 <p align="center">
 ${\textsf{\color{#C9C7CC}੭　　﹕﹒ 𝚐⥠ɜɜ𝟽 Ỿ𝓊ꪑ𝑒　　𓈒　 ׁ 　ꫂ᭪　　 ̟　 ݁ }}$
